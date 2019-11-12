@@ -1,0 +1,1 @@
+teched.github.io is Technical education platform/blog
